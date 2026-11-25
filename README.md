@@ -6,11 +6,11 @@
 
 链接: https://pan.baidu.com/s/1A7ODBANKTXLqvbvGCAFbgQ?pwd=cr6y 提取码: cr6y
 
-（假如链接失效请及时通知我）
+（假如链接失效请及时通知我）（你要用哪份图纸就先单独下载那一份，小文件下载无速率限制）
 
-#### 我的邮箱地址2021905947@chd.edu.cn
+#### 我的邮箱地址smia0014@student.monash.edu
 
-要图纸可以私信我，我给你发下载速度会快点
+欢迎交流
 
 #### 2、比赛 经验分享文档
 https://zhuanlan.zhihu.com/p/662611201
